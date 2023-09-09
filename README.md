@@ -8,5 +8,6 @@
 
 #### 📜 My [course](https://www.notion.so/WID-What-I-Did-5d05c0f84afd4ee9910bc957eb0de647?p=6b59a9ad1d9a403bbd6ed1f1bb657f7d&pm=c) 
 
+#### 🏆 My [award](http://www.newsfarm.co.kr/news/articleView.html?idxno=88880)
 
 
