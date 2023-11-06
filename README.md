@@ -8,6 +8,6 @@
 
 #### 📜 My [course](https://www.notion.so/5d05c0f84afd4ee9910bc957eb0de647) 
 
-#### 🏆 [Award](http://www.agrinet.co.kr/news/articleView.html?idxno=320467)http://www.agrinet.co.kr/news/articleView.html?idxno=320467)
+#### 🏆 [Award](http://www.agrinet.co.kr/news/articleView.html?idxno=320467)
 
 
