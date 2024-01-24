@@ -6,6 +6,6 @@
 
 #### 📜 My [course](https://www.notion.so/5d05c0f84afd4ee9910bc957eb0de647) 
 
-#### 🏆 [Award](https://www.notion.so/Award-c153f1e2ac4246b6af26692327b1e800?pvs=4)
+#### 🏆 [Award](https://dusty-caboc-f27.notion.site/Award-c153f1e2ac4246b6af26692327b1e800?pvs=4)
 
 
