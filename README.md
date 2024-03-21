@@ -6,7 +6,7 @@
 
 ### 📜 My [course](https://seungw00lee.notion.site/5d05c0f84afd4ee9910bc957eb0de647?pvs=74) 
 
-### 🏆 [Award](https://dusty-caboc-f27.notion.site/Award-c153f1e2ac4246b6af26692327b1e800)
+### 🏆 [Award](https://seungw00lee.github.io/data%20science/spyegg/)
 
 
 <div style="text-align: left;">
