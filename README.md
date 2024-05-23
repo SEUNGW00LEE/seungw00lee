@@ -6,7 +6,6 @@
 
 - **I am someone who enjoys solving problems through data analysis.**
 
-- **Interests : Data Analysis, Future Mobility Industry (SDV, PBV, AI, Robotics, AAM)**
 ---
 
 -  **I'm student at [@Konkuk Univ](https://www.konkuk.ac.kr/konkuk/index.do)**
