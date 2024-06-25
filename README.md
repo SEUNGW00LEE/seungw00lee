@@ -3,8 +3,6 @@
        
 ## I'm SeungwooLee 
 
----
-
 -  **I'm student at [@Konkuk Univ](https://www.konkuk.ac.kr/konkuk/index.do)**
 
 -  **My major is [@Animal Science](http://anis.konkuk.ac.kr/main.do) & [@Statistics](https://stat.konkuk.ac.kr/stat/index.do)**
