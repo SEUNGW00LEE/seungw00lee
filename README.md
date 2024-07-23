@@ -5,7 +5,7 @@
 
 -  **I'm student at [@Konkuk Univ](https://www.konkuk.ac.kr/konkuk/index.do)**
 
--  **My major is [@Animal Science](http://anis.konkuk.ac.kr/main.do) & [@Statistics](https://stat.konkuk.ac.kr/stat/index.do)**
+-  **My major  [@Animal Science](http://anis.konkuk.ac.kr/main.do) & [@Statistics](https://stat.konkuk.ac.kr/stat/index.do)**
 
 -  **What is [Spyegg?](https://seungw00lee.notion.site/Spyfarm-SPYEGG-513b7252b4fc4b829016d60841c3c178?pvs=74)**
 
